@@ -1,0 +1,2 @@
+# spotussomecoins
+Non profit organizations 
